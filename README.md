@@ -26,8 +26,8 @@ Aspiring software developer and web enthusiast focused on learning programming f
 ---
 
 ## 📫 Contact
-- Email: your-email@example.com  
-- GitHub: https://github.com/yourusername  
+- Email: anselm.mu@gmail.com  
+- GitHub: https://github.com/amunango2004-jpg 
 
 ---
 
